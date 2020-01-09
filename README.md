@@ -2,4 +2,4 @@
 
 Hi humans!
 
-My name is Dylan
+My name is Dylan, and i am strange
