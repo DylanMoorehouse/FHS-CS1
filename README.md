@@ -2,4 +2,4 @@
 
 Hi humans!
 
-My name is dylan
+My name is Dylan
